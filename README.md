@@ -1,1 +1,1 @@
-# LSEG-Interview-Challenge
+# Redacted-Interview-Challenge
